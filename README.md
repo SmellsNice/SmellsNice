@@ -1,4 +1,4 @@
-Bmfff pffft barffff gwooooffff poofffff  fssssssssssssss.
+Just a placeholder until I get around to making a proper page.
 
 <!---
 SmellsNice/SmellsNice is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
